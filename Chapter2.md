@@ -1,0 +1,572 @@
+# Chapter 2: Beginnings of English America, 1607–1660
+
+## I. England and the New World
+
+### A. Unifying the English Nation
+The English nation was always in pieces, until the rule of Elizabeth I
+from 1558.
+
+After Henry VII militarily unified England, a succession of kings and
+queens made the lives of both Catholics and Protestants harder.
+
+
+### B. England and Ireland
+England and Ireland had long been military and cultural rivals, and
+the English treatment of the Irish people set a standard for treatment
+of Native American.
+
+England was caught up in trying to subdue Ireland as a part of
+England, thus diverting the money that could otherwise be used in
+American expeditions.
+
+The Irish people supposedly resisted English rule and Protestantism,
+and the English settlers gathered in “plantations” in Ireland.
+
+
+### C. England and North America
+The first attempts for England to create colonies in North America
+were not at all successful, with virtually no support from the crown.
+
+Elizabeth I issued charters to two explorers (Raleigh and Gilbert) to
+allow them to explore North America in the name of England.
+
+Both attempts of exploration as well as several subsequent ones failed
+because of inadequate planning and/or lack of capital.
+
+
+### D. Spreading Protestantism
+England uses Protestantism and the fact that colonizing America would
+cast a blow to the Spanish Empire to justify their behavior in the
+Americas, which is every bit as brutal as their treatment of the
+Irish.
+
+The English, reading the writings of Las Casas and hearing about the
+Black Legend of the Catholic Spain, put spreading Protestantism as one
+of the priorities for colonization.
+
+The English thought they were the superior colonists to the Spanish
+because of their treatment of Indians, but in fact they were not much
+better.
+
+
+### E. Motives for Colonization
+The main motives for the English crown to support colonizing North
+America was the hypothesis that it could bring fortune to England,
+thereby able to compete with other European nations.
+
+Hakluyt and others argued that supporting settlements in North America
+would bring England up to speed with other European superpowers.
+
+Hakluyt insisted that the land containing the modern United States has
+riches not recognized by other countries that could be used in trade.
+
+
+### F. The Social Crisis
+Colonization of North America could also solve the problem of the
+increasing population pressure in the British Isles.
+
+In Britain, small peasants were forced out of the “commons” farmland,
+while the population kept increasing.
+
+In the cities, there was a growing discontent towards the poor
+peasants forced into the cities as the enclosure movement spreads to
+more areas.
+
+While Henry VIII and Elizabeth I both tried to solve the problem of
+the “men without masters,” Hakluyt suggested to send them to North
+America so that they could contribute wealth to the crown.
+
+
+### G. Masterless Men
+The settling of America filled the fantasies of many an Englishman who
+dreamed to be lords of acres of land.
+
+Since More’s *Utopia,* Englishmen had wanted the ideal economic
+independence from their masters, even to the degree that some started
+to admire the vagabonds and beggars for their freedom.
+
+Colonist John Smith’s report that one might own hundreds of acres of
+land attracted many middle-class English emigrants.
+
+## II. The Coming of the English
+
+### A. English Emigrants
+In a short period of time, a large number of English immigrants came
+to North America, many of which were lower-class men who had nothing
+to lose by migrating.
+
+North America was a dangerous place in the seventeenth century, but
+many English emigrants were willing to come, reflecting on the
+economic conditions in their homeland.
+
+The quick influx of English population to the Americas contrasted with
+the settlements of other European colonies, and quickly the English
+comprise a large percent of European population in the New World.
+
+
+### B. Indentured Servants
+Indentured servitude was the most popular way to go to North America,
+but the success of the individual is not guaranteed.
+
+Most of the migrants came to North America as indentured servants, who
+are obligated to work for a certain number of years for the lords who
+paid for their voyage.
+
+The servants were treated like slaves, but they could be free once the
+term was up.
+
+Few servants actually successfully got land after the end of the
+servitude, since many had died and others did not get enough freedom
+dues.
+
+
+### C. Land and Liberty
+Land was a synonym of liberty and wealth for the English, and the
+slave trade made it even more profitable
+
+For one to have liberty, one must have land, according to the English
+settlers, which is why the king gave out large grants of land.
+
+There was an abundance of land in the Americas, but the lack of
+cultivators made the English turn to slaves.
+
+
+### D. Englishmen and Indians
+Unlike all other European nations, the focus of the English was on
+land, so they did not trade or live with the Indians.
+
+Englishmen, unlike the Spanish or the French, did not much
+relationship with Native Americans since their primary interest is
+occupying their land.
+
+Some colonial officials tried to contain the expansion into the
+Indian territory, but it is ineffective against the ever-increasing
+need for land.
+
+The English displaced almost all Indians in the land they occupied.
+
+
+### E. The Transformation of Indian Life
+The lives of Indians became harder and harder as the territories of
+the English expanded.
+
+Many tribes initially welcomed the English because of the goods they
+brought to the New World.
+
+Europeans disrupted the order in the Indian societies by means of
+unequal trade, killing of animals, and increased warfare.
+
+
+### F. Changes in the Land
+As soon as the English arrived, the land started being depleted due
+to the European practices.
+
+The English imposed their own farming and logging styles upon the
+ecosystem of North America, making the land less and less healthy.
+
+## III. Settling the Chesapeake
+
+### A. The Jamestown Colony
+Due to many issues with management, Jamestown was not a very
+successful colony by any means, although new immigrants kept coming.
+
+At first, the settlers of Jamestown were not hardy and only
+searching for the nonexistent gold.
+
+Diseases and lack of hygiene in the colony killed about 80% of the
+initial settlers.
+
+Only with John Smith and his successors’ iron rule did Jamestown
+survive as a colony.
+
+
+### B. From Company to Society
+Virginia started to become a functioning society soon after the
+Virginia Company allowed all free people to possess land.
+
+The Virginia Company, realizing that the colony cannot be
+commercially profitable through gold, gave away free land to all
+free settlers (not indentured servants).
+
+The House of Burgesses, set up by the Company as the first
+legislature in colonial America, consisted of rich landowners only.
+
+
+### C. Powhatan and Pocahontas
+The Powhatan had a temporary peaceful relationship with the colonists,
+partially because of Pocahontas.
+
+Powhatan was the tribe located at Jamestown (before it was called
+“Jamestown”), ruled by the powerful Wahunsonacock.
+
+Pocahontas, the favorite daughter of Wahunsonacock, saved John Smith
+from her father, and later married an English colonist.
+
+After John Smith returned to England with Pocahontas, the relationship
+between the two groups deteriorated and ended with warfare.
+
+
+### D. The Uprising of 1622
+The Powhatan was unhappy with the rule of the colonists, and tried an
+unsuccessful rebellion that ended up decreasing the their power.
+
+Powhatan’s successor, Opechancanough, led a surprise attack against
+the colonists, which ended with total failure as soon as the Governor
+of Virginia declared war.
+
+The center of power dramatically shifted to the colonists’ side after
+the uprising, and Indians were soon forced to live in their “reserve,”
+which was often trespassed by the colonists.
+
+The Virginia Company willingly abdicated and the Virginia colony now
+belonged to the English crown.
+
+
+### E. A Tobacco Colony
+Virginia was discovered to be a prime environment for tobacco growing,
+attracting more settlers to be a part of a rigid society.
+
+After it was discovered that Virginia had a climate for growing prime
+tobacco, many English gentlemen acquired land in Virginia to cultivate
+it, resulting in a massive increase of tobacco export.
+
+Because of the constant need of labor in Virginia, the Virginian
+society expanded quickly to one resembling the English society.
+
+
+### F. Women and the Family
+There were few stable families in Virginia, and Virginian women often
+had more rights and liberties than women elsewhere in the Anglosphere.
+
+Virginia, due to its high death rate, lacked meaningful family life,
+despite efforts like the “tobacco brides”.
+
+Unlike the Spanish, English laws demanded that widows only be given
+“dowager rights” when the husband died.
+
+Because of their rarity in the colony, women was held to a higher
+regard than in other English areas.
+
+
+### G. The Maryland Experiment
+Unlike the other democratic governments set up in North America,
+Maryland was owned by its ruler Cecilius Calvert as his territory.
+
+Maryland was the second Chesapeake colony to be established, and
+tobacco cultivation flourished there as well.
+
+Originated as a proprietory colony of the Catholic Cecilius Calvert,
+it was ruled autocratically, making it a colony of contradictions.
+
+
+### H. Religion in Maryland
+Calvert intended Maryland to be a place where Catholics and
+Protestants coexist in peace, but that goal was undermined by the
+economy and unhealthy environment.
+
+While Calvert envisioned Maryland to be a haven for persecuted
+Catholics, most settlers were Protestants wishing to become rich fast.
+
+The economy and environment in Maryland resembled that in Virginia
+with its tobacco climate and high death rate.
+
+## IV. The New England Way
+
+
+### A. The Rise of Puritanism
+New England was settled by families of Puritan beliefs, who rejected
+the hierarchy of the Anglican Church.
+
+In England, Puritanism was initiated as a group of people unhappy with
+the Anglican Church’s resemblance to the Catholic Church.
+
+Most Puritans were Calvinists who believed in predestination.
+
+
+### B. Moral Liberty
+Puritans believed that following authority was the ultimate liberty
+one can achieve.
+
+Many Puritans started migrating during the rule of Charles I, as they
+feared the ungodly practices of the Anglican Church would void their
+salvation.
+
+The Puritans believed in a sense of “moral liberty” that gives the
+person liberty to follow authority, rather than liberty in the modern
+sense.
+
+
+### C. The Pilgrims at Plymouth
+The Pilgrims were the first Puritans to migrate to America, hoping to
+establish a Christian utopia at Chesapeake even though they settled at
+Plymouth.
+
+The first Puritan immigrants to North America were the Pilgrims, a
+group of separatists, who drew up the Mayflower Compact as their frame
+of government.
+
+The Pilgrims accepted much help from local Indians, without which they
+could not have survived.
+
+Plymouth was set up to be a utopian society, but that effort was
+undermined as the Massachusetts Bay colony became popular.
+
+
+### D. The Great Migration
+The new Massachusetts Bay Company attracted many families to their
+colony, causing the Great Migration.
+
+The Massachusetts Bay Company established another Puritan colony whose
+additional goal was to make profit through trade with Indians.
+
+Many colonists came to Massachusetts Bay as part of the Great
+Migration, but contrary to other colonies mainly older and richer
+families settled here.
+
+
+### E. The Puritan Family
+Puritan families followed the traditional family roles in England,
+with the husband being the head of the family and the wife being the
+mother.
+
+Family roles from England was carried over to New England as the
+gender ratio was more balanced.
+
+Wives were expected to follow the husbands, who were considered the
+head of the family.
+
+New England women were first and foremost mothers and wives, and
+married younger than English women.
+
+
+### F. Government and Society in Massachusetts
+Massachusetts was established as a Bible Commonwealth that extended
+voting rights to all freemen, despite the fact that only a small
+percentage of the people held government offices.
+
+Puritans like John Winthrop valued education, since reading the
+Bible was an important Puritan doctrine, and as a result the Harvard
+College was established.
+
+The governor in Massachusetts was elected by freemen while the
+legislature (the General Court) was appointed by the Company.
+
+Only full members of the congregations were allowed to be government
+officials, making the society hierarchical in any case.
+
+
+### G. Puritan Liberties
+Puritans enforced the sense of moral liberty being the superior form
+of human liberties since the colony was effectively a theocracy.
+
+John Winthrop and others considered inequality an inevitable result
+of God’s creation.
+
+Massachusetts did not have separated church and state; all religious
+offenses were taken to the general court.
+
+## V. New Englanders Divided
+Individual judgment was encouraged by the Puritans, but individual
+differences were not.
+
+
+### A. Roger Williams
+Williams was a young preacher who disagreed with some core Puritan
+doctrines and was considered a danger to the stability of the
+colony.
+
+Williams preached that government and congregation should be
+separated as the involvement of civil affairs corrupted relgions.
+
+He also did not believe predestination in Calvinist beliefs, and was
+thus regarded as a danger to the society in John Winthrop’s eyes.
+
+
+### B. Rhode Island and Connecticut
+Dissenters from the original two colonies soon established the Rhode
+Island and Connecticut colonies, similar to how the two
+Massachusetts colonies were formed.
+
+Williams and his followers went south to create the Rhode Island
+colony, which was the most egalitarian and relgiously free colony.
+
+Connecticut was the home to two other dissenting groups in Hartford
+and New Haven.
+
+
+### C. The Trials of Anne Hutchinson
+Anne Hutchinson was accused of blasphemy (Antinomianism) and was soon
+banished from the religiously homogeneous Massachusetts.
+
+Hutchinson held meetings in her house to discuss religious matters,
+and had a different belief towards salvation than most other Puritans.
+
+Hutchinson was banished from the colony after a trial of
+Antinomianism, and soon died with her relatives in an Indian war.
+
+Religious toleration, as exemplified by Williams and Hutchinson, would
+come to Massachusetts only after a long time.
+
+
+### D. Puritans and Indians
+Puritans primarily did not care for the Indians’ existence except when
+they tried to push westward for new land.
+
+Both Williams and Winthrop insisted that Indian lands should be
+purchased, but Williams felt more sympathy towards the Indians.
+
+Puritans regarded the Indians as savages with “natural freedom” rather
+than the “moral freedom” preached by Winthrop.
+
+Unlike Catholics, Puritans did not active try to convert Indians.
+
+
+### E. The Pequot War
+The total success of the Puritans over the Pequots demonstrated the
+immense power they had over the Indians.
+
+After the Peqouts killed a fur trader, the white settlers retaliated
+by exterminating the entire tribe.
+
+The colonists went ahead and settled in the Connecticut River Valley
+the Pequots originally settled in, while the other Indian tribes were
+anxious of the power the colonists possessed.
+
+
+### F. The New England Economy
+Economically New England depended on food, fish, and lumber exports,
+centered around families.
+
+Although established as a place for religious freedom, profits was
+important to the colonists as well.
+
+The authority did not disapprove economic profit so long as the
+community was not forgotten.
+
+Family farms were the primary units of economy in New England, for
+which the availability of land was crucial.
+
+
+### G. The Merchant Elite
+After 1640s, the New England merchants became the elite in the society
+as Puritan values were diluted.
+
+In New England, the total wealth was less but more evenly distributed
+than in the Chesapeake, where indentured servants seldom achieved high
+social status.
+
+New England gradually became a place of commerce, after many Puritan
+policies on economy got repealed.
+
+The wealthy merchants soon became the elite in New England rather than
+the Puritan ministers, pushing Massachusetts to a commerce-centric
+society.
+
+
+### H. The Half-Way Covenant
+As the church membership continued to decrease because of the
+increased merchant economy, the Half-Way Covenant was established with
+little success to reverse the trend.
+
+The Puritan leaders in Massachusetts worried about the decreasing
+attendance of Puritan sermons and the decreasing piety of the colony
+as a whole.
+
+The Half-Way Covenant of 1662 was established to allow Puritans by
+ancestry to be members of the church, but church membership continued
+to decline.
+
+Puritans emphasized hard work, which the merchants believed in as
+well, making the commercialization of the colony a fulfillment of
+Puritan values as well.
+
+## VI. Religion, Politics, and Freedom
+
+
+### A. The Rights of Englishmen
+English people considered themselves to be a free people since their
+monarch was constrained by the Magna Carta and they had certain
+freedoms guaranteed.
+
+As conflicts for more freedom happened England, the American colonists
+expanded their definition of freedom as well.
+
+The English sense of liberties was based on the Magna Carta, which
+established England as a constitutional monarchy.
+
+Though originally only noblemen benefited from the Magna Carta, as
+more common people were considered freeborn the power of the monarch
+decreased dramatically.
+
+
+### B. The English Civil War
+A struggle for power against the monarch, the English Civil War of
+1640s gave Oliver Cromwell and the House of Commons more power.
+
+As the concept of English freedom became more important, tension with
+the English king increased until the English Civil War in 1640s.
+
+The House of Commons launched and won a full-out war against the
+Catholic monarchs, giving what it meant to be English a new light.'
+
+
+### C. England's Debate over Freedom
+After the recent turn of events, the English people were more proud
+of their freedom and some turned to more radically equal concepts.
+
+Democratic movements like the Levellers took place after Milton's
+poignant calling England the embodiment of freedom.
+
+The Diggers took the Levellers’ cause further as they promoted full
+equality for all.
+
+
+### D. English Liberty
+Englishmen living in England and America all saw themselves as being
+freer than Catholic countries like France and Spain.
+
+Dwellers of the Anglo-American colonies identified themselves as
+recipients of the English liberty.
+
+Englishmen saw themselves as having a superior government that has
+only qualified power over the citizens.
+
+
+### E. The Civil War and English America
+New England sided with the Parliament in the war, even though they had
+some inconsistency in their religious doctrines.
+
+The English Civil War was a stage to prove the rights of Englishmen in
+America as many New Englanders started supporting the Parliament.
+
+Massachusetts government deviated from the English freedom supported
+by the Parliament as they persecuted Quakers and other minorities.
+
+
+### F. The Crisis in Maryland
+Maryland underwent a moment of crisis as Protestants and Catholics
+had conflicts, but ended with a freedom of religion.
+
+Maryland was trapped between the Protestant New England and the
+Catholic Virginia, and was in a state of near-anarchy during the war.
+
+Calvert under pressure issued an Act Concerning Religion that
+guaranteed freedom of Christian religion and appointed a Protestant
+governor.
+
+During the next decade, Calvert was forced to abdicate because of the
+Protestant government in England but was restored to power soon.
+
+
+### G. Cromwell and the Empire
+Cromwell enforced an iron-fist policy against Catholics and the
+colonies, foreshadowing the union of the colonies in the future.
+
+Oliver Cromwell was an aggressive ruler who killed Catholics, seized
+colonies, and passed the first Navigation Act.
+
+The English colonies were extremely diverse in their economy,
+heritage, religion, and cultures.
+
+As the colonies expand and as England exerts more power upon the
+colonies, the colonies started to consolidate themselves.
