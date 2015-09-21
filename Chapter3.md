@@ -1,0 +1,546 @@
+# Chapter 3: Creating Anglo-America, 1660–1750
+
+## I. Global Competition and the Expansion of England’s Empire
+
+
+### A. The Mercantilist System
+English government forced its American colonies to trade with only
+them, enforcing a monopoly that increased English wealth.
+
+The English recognized the importance of controlling commerce in order
+to keep the mother country prosperous.
+
+Starting from Cromwell’s Navigation Act, several more mercantilist
+policies were put into place to reap profits from America.
+
+All parties benefited from the Act: English traders enjoyed a
+monopoly; English government had an increased tax income; American
+shipbuilders had more business.
+
+
+### B. The Conquest of New Netherland
+New York was acquired by England in 1664 without a fight from the
+Dutch, and was transformed to an important imperial outpost.
+
+Charles II continued Cromwell’s expansionist policies as more
+territories such as New Netherland/New York fell into English hands.
+
+Under the English government, New York grew much larger in size and
+importance.
+
+
+### C. New York and the Rights of Englishmen and Englishwomen
+New Netherland’s fall into English hands meant less freedom fNeor most
+of the New Yorkers, especially women and blacks, while the rich got
+even richer.
+
+Freedom for women diminished as Dutch culture was gradually replaced
+by the more rigid English culture.
+
+In contrary to the Dutch inclusion of blacks, the English rejected
+black freemen from many jobs.
+
+The elite in New York were granted large tracts of land, intermarried,
+and formed a closely knit society of themselves.
+
+
+### D. New York and the Indians
+The Iroquois tribes and the New York government formed a temporary
+alliance against other Indian and European groups.
+
+At first, New York (represented by governor Andros) entered into an
+alliance with the Iroquois, but in a decade the Iroquois started to
+become neutral.
+
+
+### E. The Charter of Liberties
+New Yorkers fought for and won the right of self-government and
+established their own Charter of Liberties.
+
+Complaints about lack of self-government started to appear in New
+York.
+
+After the Duke of York assented to a legislature, a Charter of
+Liberties and Privileges were passed that guaranteed English
+liberties.
+
+
+### F. The Founding of Carolina
+Carolina was founded as an extremely hierarchical society because of
+slavery and its economy of growing rice as a cash crop.
+
+Originally intended to be a barrier to Spanish Florida, Carolina
+expanded quickly as they destroyed Indian communities.
+
+Carolina was created by its constitution to be a feudal society but
+also with an elected legislature and a generous headright system.
+
+The dream of feudalism never came true, but slavery was established as
+the primary labor system and rice the primary economy.
+
+
+### G. The Holy Experiment
+William Penn established Pennsylvania as a utopian society based on
+Quaker ideals.
+
+William Penn was granted the land of what is now Pennsylvania and
+Delaware by Charles II to establish a colony based on peace.
+
+As a Quaker, Penn established Pennsylvania upon Quaker ideals of
+religious toleration and harmony.
+
+
+### H. Quaker Liberty
+The core doctrine of Penn and the Quakers was unqualified religious
+freedom which they enforced as long as public behaviors were
+considered decent.
+
+Quakers believed in liberty for every human on earth, and treated
+the Indians with fairness and friendship.
+
+While Penn believed in total religious liberty, public indecent
+behaviors were strictly banned.
+
+
+### I. Land in Pennsylvania
+Pennsylvanian land was sold by Penn to immigrants, who came to
+Pennsylvania for a plethora of reasons, but he did not gain profit
+from the trade as he had hoped.
+
+Immigrants were attracted to Pennsylvania because of Penn’s
+advertisement, temperate weather, and inexpensive land.
+
+The new immigrants were most usually not Quakers and caused tensions
+with the Indian groups Penn befriended.
+
+## II. Origins of America Slavery
+Slavery of Africans did not arise as the principle purpose of any
+country’s colonization activities, but the profits slavery brought made it
+popular.
+
+
+### A. Englishmen and Africans
+The English view of Africans was not based on skin color or race at
+first, but soon they started enslaving them and used a stereotype
+against them.
+
+The English had been condescending toward other peoples, especially
+those who were not Christians.
+
+Slaves in English America were mostly from outside, not native
+Indians, due to the lack of profit and difficulty to enslave the
+latter.
+
+
+### B. Slavery in History
+Although slavery existed in many societies, economic slavery like that
+in the Americas was unprecedented.
+
+Historically slavery had always existed, but never at the scale,
+intensity, or roles as the African Americans were.
+
+In America, slaves were coerced into doing intensive labor, something
+radically different from the household slavery in Africa.
+
+
+### C. Slavery in the West Indies
+West Indies acted as a precursor to the level of slavery that would
+later be seen in North America.
+
+Slavery in the Americas was most prominent in the Western Indian
+islands in the Caribbean in sugar plantations.
+
+By 1660, most of the population on the island of Barbados was composed
+of African slaves, with European descendants constituting only a small
+part.
+
+The climate in the West Indies was particularly fine for growing
+sugar, making St. Domingue and Barbados the most wealthy colonies in
+the world.
+
+By 1680, slavery in North America was still not as strong as in West
+Indies, and indentured servants and slaves usually considered
+themselves to be in the same social group.
+
+
+### D. Slavery and the Law
+At first, slavery was less codified and typically slaves had more
+rights than they would have after.
+
+Slavery in Spanish America was a lot more benign than the slavery
+carried out in English America since they gave slaves rights in *Las
+Siete Partidas.*
+
+At first, slaves were essentially treated as indentured servants as
+they worked together and even became free with white servants.
+
+
+### E. The Rise of Chesapeake Slavery
+A combination of popular demand and careful political maneuvering
+in Virginia made slavery ubiquitous.
+
+The colonial governments polarized white servants and black slaves by
+providing more benefits to the whites while having stricter slavery
+policies for the slaves.
+
+Soon, the Virginia government enforced more laws restricting black
+people’s freedom and increasing profitability to hold slaves.
+
+
+### F. Bacon’s Rebellion: Land and Labor in Virginia
+Nathaniel Bacon and other colonists rebelled against Berkeley, the
+governor of Virginia, because of the impossibilities to get land under
+his corrupt rule.
+
+Because of his corruption and unwillingness to open new lands,
+Governor Berkeley of Virginia was very unpopular among the lower-class
+white men.
+
+In 1676, the tension erupted into a full-out war of the colonists
+against Berkeley and the Indians.
+
+While Bacon himself was part of the upper-class, his movement gained
+popularity among most of the recently freed servants.
+
+
+### G. The End of the Rebellion, and its Consequences
+Bacon and his supporters did not make it through the end of the
+rebellion, but the new elite class became mindful of the voice of the
+lower class.
+
+The rebellion gained momentum, and Berkeley’s supporters’ and Indian
+land was plundered until English warships arrived.
+
+The social elites adopted a compromise between Berkeley’s and Bacon’s
+governments, seeking to protect their own properties while pacifying
+the lower class.
+
+
+### H. A Slave Society
+Because of multiple factors, slaves became the primary work force in
+Virginia, and were not legally protected by law.
+
+As fewer indentured servants are coming into Virginia, plantation
+owners turned to slaves for cheap permanent labor forces beginning in
+1680.
+
+In 1705, the House of Burgesses passed a more comprehensive slave
+code that entirely stripped away the freedom of the slaves.
+
+
+### I. Notions of Freedom
+The white citizens of Virginia recognized the slaves’ longing for
+freedom and deliberately attempted to thwart it.
+
+## III. Colonies in Crisis
+Late 1600s was a time of constant warring in multiple colonies and
+continents.
+
+
+### A. The Glorious Revolution
+During James II’s rule, some avidly Protestant aristocrats were
+nervous about his Catholic rule, thus inviting William of Orange to
+assume the throne.
+
+King Charles II was an avid Protestant, setting the stage for the
+Glorious Revolution later in 1688.
+
+Charles’s successor James II was a Catholic who reverted the policies
+of Charles, drawing disagreement from the aristocracy who invited
+William of Orange to rule.
+
+While the revolution was a coup-de-état by some aristocrats, the
+notion of English freedom was heightened, giving rise to the English
+Bill of Rights of 1689.
+
+After 1680s, religious toleration in most English colonies decreased
+just as in England, while state-sponsored Protestant churches grew
+faster.
+
+
+### B. The Glorious Revolution in America
+James II’s rule was equally unpopular in the Americas as he reinstated
+the Navigation Act and committed other bold actions.
+
+Initially the colonies in America did not care about the English
+government at all, especially in New England.
+
+James II became unpopular in New England by consolidating all the
+colonies into one, appointing Sir Edmund Andros as the governor.
+
+
+### C. The Maryland Uprising
+William revoked the Maryland charter and ensured Protestantism as the
+official religion.
+
+Various uprisings took place in America: in Boston, New York, and
+Maryland.
+
+Beginning from 1689, the Baltimore family no longer controlled
+Maryland until their conversion to Anglicanism, revoking the religious
+freedom in Maryland.
+
+
+### D. Leisler’s Rebellion
+Jacob Leisler attempted the same, but his rebellion failed because he
+already polarized the New York society, making him unpopular in the
+Dutch majority.
+
+
+### E. Changes in New England
+While many New England colonies did get their charters back,
+Massachusetts colonies did not and the Bible commonwealths became one,
+stripping them of the initial Puritan ideals.
+
+Massachusetts and Plymouth were combined, reducing the original
+Puritan ideals to null.
+
+Many Puritans believed that the forced allowance of other Protestant
+religions as heretical.
+
+
+### F. The Prosecution of Witches
+Witches were prosecuted in the western world as many believed in
+superstition.
+
+Puritans believed in superstition, and blamed many abnormal behaviors
+on witches.
+
+Witchcraft was considered a crime in Europe and the colonies, and most
+of the indicted “witches” were outspoken women.
+
+
+### G. The Salem Witch Trials
+Many innocent people were burned at stake in Salem as multiple
+“witches” were alleged to practice witchcraft by their enemies.
+
+In Salem, Massachusetts in 1691, multiple witches were put to death,
+and witchcraft was used as a legitimate method of murdering.
+
+After 1692, witch trials were discredited and gradually came to a
+halt, partly because of Increase Mather’s book.
+
+## IV. The Growth of Colonial America
+America now was the base of multiple colonial empires like Spain, France,
+and England.
+
+Economically the New World expanded during most of the eighteenth century.
+
+
+### A. A Diverse Population
+English America grew to a population with people of origins from all
+over Western Europe.
+
+At first, the demographics English colonies were fairly homogeneous.
+
+As indentured servants and skilled artisans arrived at America, the
+original English population started to possess a less important role.
+
+
+### B. Attracting Settlers
+Many English, Scottish, and Irish people were forced to come to
+America either being convicts or to evade invasion in their home
+country.
+
+Most of the English settlers in Chesapeake were Englsh convicts; then
+many people of other countries started to see America as a haven and
+came to America.
+
+During this period many Scots and Irish people also immigrated, adding
+more ethno-religious and professional diversity to the colonies.
+
+
+### C. The German Migration
+Germans came to America for multiple reasons, but most of them
+travelled in families who preserved their cultural heritage.
+
+Many Germans found themselves either in a region of another religion,
+or unable to find land, and many migrated to America and Eastern
+Europe.
+
+Most German immigrants were indentured servants in families who formed
+tightly knitted communities on the western frontier.
+
+
+### D. Religious Diversity
+Eventually, religious freedom was achieved to varying degrees in all
+colonies, coupled with other liberties making America an ideal place
+for new immigrants.
+
+Although most groups were in their own communities, the religious
+diversity in the colonies was still greater than that in England.
+
+Most colonies had had an official church, but *de facto* toleration
+was achieved for believers of all religions.
+
+Likewise, this liberty extended to many other facets of life, like in
+low taxes, lack of fees, freedom of movement, and the lack of a
+military draft.
+
+
+### E. Indian Life in Transition
+Indian lives were mostly affected negatively as they now relied on
+European goods and were constantly forced to move west.
+
+Indians now relied on European goods for everyday uses, while forming
+larger consolidated communities of multiple former tribes.
+
+Most settlers viewed Indians as an obstruction to new land, while
+colonial officials saw them as sources of fur.
+
+Pennsylvania in mid-1700s was far different from the Pennsylvania
+created by William Penn, with more than 10 times the population in
+1700 and as land-hungry as all other colonies were.
+
+
+### F. Regional Diversity
+Within North America, the colonies had different economic and social
+roles.
+
+New England had small family-owned farms, while southern colonies like
+the Carolinas and Virginia were homes to plantations of tobacco.
+
+Middle colonies generally focused on commerce more than agriculture,
+with New York developed slower than others.
+
+
+### G. The Consumer Revolution
+America and Britain developed a system of trade that pushed a large
+amount of British goods to America.
+
+Britain was now the leading producer of industrial goods, thanks to
+British traders making their goods popular in America.
+
+Formerly luxurious products like tea and china were enjoyed by most
+colonial families, even some of the destitute ones.
+
+
+### H. Colonial Cities
+Had been quite far from Spanish American cities, the population and
+importance of British American cities grew as more immigrants came to
+North America.
+
+North American cities were not at the scale of those in Spanish
+America.
+
+City population grew rapidly during mid-1700s and cities like
+Philadelphia became the center of British America financially,
+commercially, and culturally.
+
+
+### I. Colonial Artisans
+Artisans were in hot demand in the Americas, and the possibility of
+rising up the social ladder by being proficient in a business formed
+a prototype of the idea of the American dream.
+
+Skilled artisans could always find a way to live in the colonies,
+since those skills were highly needed by the development of colonies.
+
+Most apprentices successfully rise to the position of owning their
+workshop, regardless of their ethno-religious background.
+
+
+### J. An Atlantic World
+By this time, the Atlantic Ocean trade network was the largest in the
+world, forcing the parties to be more interconnected to others than
+ever.
+
+Spanish America, British America, Indians, and Europe formed a complex
+web of trades that flourished.
+
+The increase of trade between the colonies and Britain drew them
+closer together.
+
+## V. Social Classes in the Colonies
+
+
+### A. The Colonial Elite
+The elite in the colonies were effectively fixed since they dominated
+politics of entire colonies.
+
+While not as wealthy or powerful as their counterparts in Britain, the
+colonial elite consisted of large plantation owners, wealthy
+merchants, and rulers of some more autocratic colonies.
+
+No titled aristocracy existed in America, but some families were so
+powerful they dominated entire colonies.
+
+Especially in Virginia, most wealth was achieved by inheriting rather
+than making.
+
+
+### B. Anglicization
+Rather than forming individual identities, families in America felt
+that they were English and tried to imitate English lives.
+
+Communication between individual colonies and Britain was more common
+between the colonies themselves, making the colonists feel that they
+were more English.
+
+Wealthy elites modeled their lives after the lives of British lords
+and ladies.
+
+Some were overly extravagant in their imitation, but the nearly
+endless supply of wealth from the plantation economy supported the
+extravagance.
+
+
+### C. The South Carolina Aristocracy
+Home to families owning a gigantic sum of money, the South Carolina
+viewed hierarchy as necessary and not needing to work as the symbol
+of aristocracy.
+
+South Carolina was the source of more wealth than even Virginia
+because of their tobacco economy.
+
+Freedom was recognized as being free from work and colonists adopted
+the English sense of hierarchy as an overarching philosophy.
+
+
+### D. Poverty in the Colonies
+Poverty became common as less land or inheritance was available.
+
+Besides the slaves in inhumanly impoverish conditions, the lack of
+good land forced many to become poor.
+
+In both cities and the countryside, poverty was common to those who
+could not find jobs or land.
+
+The poor had the stereotype of being lazy, and no colonies wanted to
+provide assistance.
+
+
+### E. The Middle Ranks
+The most numerous free citizens of America were in the middle class,
+who had means to support themselves through ownership of land.
+
+Most free families possessed some land an economic independence, thus
+becoming the middle class.
+
+Access to land was a mandatory requirement for wealth in the colonies,
+especially to the middle class who relied on it to make a living.
+
+
+### F. Women and the Household Economy
+Women’s work was crucial for a family to succeed in an increasingly
+family-based economy.
+
+The family was crucial to farmers since they needed as many workers as
+possible.
+
+Women’s work became more defined, and their freedom became limited in
+face of growing patriarchy.
+
+Colonial women’s marriages were often filled with labor and sorrow.
+
+
+### G. North America at Mid-Century
+Diversity and the coexistence of freedom and slavery described North
+America before the independence of the United States.
+
+What would become the United States was filled with diversity and
+booming economy at around 1750.
+
+Many enjoyed freedom not found anywhere else in the world while others
+like indentured servants and slaves were just as constrained as the
+others were free.
