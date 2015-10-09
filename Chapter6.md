@@ -347,7 +347,8 @@ imposing misery.
 
 ### D. Petitions for Freedom
 
-d
+The first attempts at freedom was put forth through legal means in the
+north, in petitions.
 
 Slaves in the north and the south have long used the language of
 "liberty" for their own rights.
@@ -364,7 +365,8 @@ experiences and intellectual abilities.
 
 ### E. British Emancipators
 
-d
+The British tried to attract blacks as soldiers by promising freedom
+to runaways.
 
 More than 100,000 slaves escaped to the British during the war.
 
@@ -377,18 +379,19 @@ lost "properties" through the emancipation process.
 
 ### F. Voluntary Emancipators
 
-d
+A few southern slaveholders emancipated their slaves voluntarily.
 
 A few landowners in the south granted their slaves emancipation
 voluntarily.
 
-Slaveowners in South Carolina were willing to lose the war rather than
-losing their slaves.
+Slave owners in South Carolina were willing to lose the war rather
+than losing their slaves.
 
 
 ### G. Abolition in the North
 
-d
+Through the work of many northern abolitionists, slavery was outlawed
+eventually in the north for all newborns.
 
 Abolition was achieved in all northern colonies between 1777 and 1804.
 
@@ -397,7 +400,8 @@ Even in the north, the road to abolition was a slow process and illustrates the 
 
 ### H. Free Black Community
 
-d
+As more free blacks came into the society, they established their own
+free communities.
 
 Because of the voluntary emancipation in the south and abolition in
 the north, there was a now a sizable free black population.
@@ -408,3 +412,72 @@ leaders, and took part in the general American life.
 The Abolition movement unfortunately did not end slavery in the south.
 
 ## VI. Daughters of Liberty
+
+
+### A. Revolutionary Women
+
+Women did what they could for the revolution, either by fighting directly or by supporting the soldiers by fund-raising.
+
+Some patriotic women secretly joined the Continental Army disguising
+as men.
+
+Other women raised funds for the cause for liberty, as was the case
+for Esther Reed.
+
+John Adams encouraged women of America to contribute to the cause as
+much as they could.
+
+
+### B. Gender and Politics
+
+Unfortunately, the general outlook of gender and marriage laws were
+not changed during the Revolution.
+
+The laws of coverture were kept after the war, to the dismay of many
+women.
+
+Because of the aforementioned laws, women could not legally own
+properties because she was not a separate legal entity.
+
+Women tried to petition for their rights before the Congress, but they
+also felt a need to apologize for their participation.
+
+Men considered women to be unfit for independence because their
+supposed lower levels of intelligence.
+
+It was normal for American courts to not assume any rights for women.
+
+
+### C. Republican Motherhood
+
+Women did get an increase in rights as their role as the mothers of the nation's next generation became recognized.
+
+The concept of republican motherhood emerged as women's role of
+educating the next generation became greater.
+
+After the war, the trend was to have a "companionated" marriage, such
+as the one of John Adams.
+
+Along with this change was the change in family structures in general,
+since no longer were the slaves and servants a part of the picture.
+
+Free women called for suffrage in the name of Liberty just as slaves
+had.
+
+
+### D. The Arduous Struggle for Liberty
+
+The Revolution brought about fascinating changes to the majority of the voting population, and the principles established during the Revolution would have worldwide implications.
+
+For most, the American Revolution meant a newly gained freedom from
+the tyranny of Britain, but for others it meant a loss of it.
+
+As the world watched America with fascination, similar revolutions
+would come to almost all of the nations eventually.
+
+The publication of American text in multiple languages encouraged the
+idea that such freedom was universal.
+
+The ideas from the American Revolution that the rights of the people
+is the most important thing for a government could be seen from the
+French Revolution to the Haitian one, to Latin America, and to Asia.
