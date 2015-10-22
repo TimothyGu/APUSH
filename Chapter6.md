@@ -204,7 +204,8 @@ giving a package of land to all who did not already possess it.
 Inflation was a serious problem in the U.S., causing the prices of
 goods to rise and encouraging merchants to stock.
 
-Overprinting of paper money and monopoly meant an increase in prices of everyday goods.
+Overprinting of paper money and monopoly meant an increase in prices
+of everyday goods.
 
 People frequently protested against the merchants holding back stocked
 goods for hope of rising prices.
@@ -225,7 +226,8 @@ managed the market more effectively than the government did.
 Eventually the concept of free trade was categorized into "liberty" a
 well, since it according to some encouraged social harmony.
 
-Like many other areas, the market is a place where freedom was extended to in the aftermath of the Revolution.
+Like many other areas, the market is a place where freedom was
+extended to in the aftermath of the Revolution.
 
 ## IV. The Limits of Liberty
 
@@ -347,8 +349,8 @@ imposing misery.
 
 ### D. Petitions for Freedom
 
-The first attempts at freedom was put forth through legal means in the
-north, in petitions.
+        The first attempts at freedom was put forth through legal means in the
+        north, in petitions.
 
 Slaves in the north and the south have long used the language of
 "liberty" for their own rights.
@@ -384,18 +386,19 @@ A few southern slaveholders emancipated their slaves voluntarily.
 A few landowners in the south granted their slaves emancipation
 voluntarily.
 
-Slave owners in South Carolina were willing to lose the war rather
-than losing their slaves.
+Slaveowners in South Carolina were willing to lose the war rather than
+losing their slaves.
 
 
 ### G. Abolition in the North
 
-Through the work of many northern abolitionists, slavery was outlawed
-eventually in the north for all newborns.
+        Through the work of many northern abolitionists, slavery was outlawed
+        eventually in the north for all newborns.
 
 Abolition was achieved in all northern colonies between 1777 and 1804.
 
-Even in the north, the road to abolition was a slow process and illustrates the difficulty it would be in the south.
+Even in the north, the road to abolition was a slow process and
+illustrates the difficulty it would be in the south.
 
 
 ### H. Free Black Community
@@ -416,7 +419,8 @@ The Abolition movement unfortunately did not end slavery in the south.
 
 ### A. Revolutionary Women
 
-Women did what they could for the revolution, either by fighting directly or by supporting the soldiers by fund-raising.
+Women did what they could for the revolution, either by fighting
+directly or by supporting the soldiers by fund-raising.
 
 Some patriotic women secretly joined the Continental Army disguising
 as men.
@@ -450,7 +454,8 @@ It was normal for American courts to not assume any rights for women.
 
 ### C. Republican Motherhood
 
-Women did get an increase in rights as their role as the mothers of the nation's next generation became recognized.
+Women did get an increase in rights as their role as the mothers of
+the nation's next generation became recognized.
 
 The concept of republican motherhood emerged as women's role of
 educating the next generation became greater.
@@ -467,7 +472,9 @@ had.
 
 ### D. The Arduous Struggle for Liberty
 
-The Revolution brought about fascinating changes to the majority of the voting population, and the principles established during the Revolution would have worldwide implications.
+The Revolution brought about fascinating changes to the majority of
+the voting population, and the principles established during the
+Revolution would have worldwide implications.
 
 For most, the American Revolution meant a newly gained freedom from
 the tyranny of Britain, but for others it meant a loss of it.
